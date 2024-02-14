@@ -2,4 +2,4 @@ Lucky kávézó
 Készítése
 Alma
 Körte
-ubi
+ubi najk csalad

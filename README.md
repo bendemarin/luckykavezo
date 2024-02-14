@@ -1,7 +1,7 @@
 Lucky kávézó
 Készítése
-Alma
-Körte
+körte
+alma
 ubi nógrádi lekvár
 ubi najk csalad
 zambo csalad es jimmy
